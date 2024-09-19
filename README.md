@@ -1,7 +1,7 @@
 # My Musical Journey
 
 **Author:**  
-- [Your Name]
+- James Frederick
 
 ---
 
